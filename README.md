@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @QinghuiXiong
 - 👀 I’m interested in Mathematics and East Asia Studies
 - 🌱 I’m currently doing my undergraduate studies at Grinnell College in Iowa
-- 💞️ I’m looking to collaborate on research on mathma
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me xiongqin@grinnell.edu
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: love Star Trek
